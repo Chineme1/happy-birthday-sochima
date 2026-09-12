@@ -1,2 +1,1 @@
-# happy-birthday-sochima
-Cousins Birthday
+Happy Birthday, Sochima
